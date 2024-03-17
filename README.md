@@ -1,11 +1,15 @@
 <p align="center">
-  <img width="400" src="https://sun9-63.userapi.com/impg/XkpMsNG_6LHhT2TUcupMTCh7bLJWEp8ZtKTegw/kHaKoFfoH3U.jpg?size=320x320&quality=95&sign=80d3ccab318b3d79e3e1754027b9e5b2&c_uniq_tag=_49sO_fL8L_cwoU0dxreKKQLUjF0Zoe7aEF15BH4Kjk&type=album">
+  <img width="555" src="https://sun9-43.userapi.com/impg/TXWDWq9gS-P3-QFZVYcqpWDgb8mr1x6xUytwIQ/YPSLOQyuXho.jpg?size=1200x953&quality=95&sign=a3573a7d552de582ac43c3ecb27ea06d&type=album">
 </p>
-<h3 align="center">... JUST LIKE OLD TIMES, HUH?! ♡ .</h3>  
-<h4 align="center">⋆... ── ⋆⋅☆⋅⋆ ── ...⋆</h4>  
+<h3 align="center">₊⊹ " ANTHROPOPHAGUS " . ๋࣭⭑</h3>  
+<h4 align="center">⛧°｡⋆༺♱༻⋆｡°⛧</h4>  
 <h4 align="center"> ๋࣭  ࣪˖ ESI, ISFP, IF( S ), sx / so 4w3, 468,</h4>   
 <h4 align="center">[sx4(w3so)sp6(w5sx)so8(w7sx)], sang-chol,</h4>  
 <h4 align="center">⋆ EFVL, chaotic neutral, creator. .ᐟ</h4>  
-<h4 align="center">♱ Main kinns: Subspace (P!), Kangel (nso).</h4>  
-<h4 align="center">⋆｡DNC! c+h only friends.°✩</h4>
-<h5 align="center">⛧°｡⋆༺♱༻⋆｡°⛧</h4>  
+<h4 align="center">⋆｡DNC! ask for c+h.°✩</h4>  
+<h4 align="center">◀︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• 0:10</h4>
+<h4 align="center">˚☽˚.⋆“The diving man's coming up for air</h4>
+<h4 align="center">'Cause the crowd all love pulling Dolly by the hair, by her hair</h4>
+<h4 align="center">And she wonders how she ever got here</h4>
+<h4 align="center">As she goes under again, 'gain, 'gain, 'gain, 'gain“⋅˚₊‧ଳ ‧₊˚ ⋅</h4>
+<h5 align="center">✧༺┆✦ʚ♡ɞ✦┆༻✩</h4>  

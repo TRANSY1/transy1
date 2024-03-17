@@ -7,7 +7,7 @@
 <h4 align="center">[sx4(w3so)sp6(w5sx)so8(w7sx)], sang-chol,</h4>  
 <h4 align="center">⋆ EFVL, chaotic neutral, creator. .ᐟ</h4>  
 <h4 align="center">⋆｡DNC! ask for c+h.°✩</h4> 
-<h4 align="center"><a href="https://tr4ns1st0ry.straw.page/" target="_blank">MY STRAW PAGE!!!!!</a> ︻デ═一....•°•<3!!</h4>
+<h4 align="center"><a href="https://tr4ns1st0ry.straw.page/" target="_blank">MY STRAWPAGE!!!!!</a> ︻デ═一....•°•<3!!</h4>
 <h4 align="center">◀︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• 0:10</h4>
 <h4 align="center">˚☽˚.⋆<a href="https://youtu.be/h44X3Wn82H8?si=xAgZrAxxSHBbABHe&t=69" target="_blank">“The diving man's coming up for air</a></h4>
 <h4 align="center"><a href="https://youtu.be/h44X3Wn82H8?si=6pg388VzOHV-UvRp&t=71" target="_blank">'Cause the crowd all love pulling Dolly by the hair, by her hair</a></h4>
